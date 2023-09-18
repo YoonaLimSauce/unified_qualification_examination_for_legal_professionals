@@ -1,0 +1,2 @@
+# unified_qualification_examination_for_legal_professionals
+存储2023法考资料, 备战2024法考客观题与主观题, 一次过
